@@ -1,6 +1,6 @@
 i dunno how to make this interesting errmm soo my name is simon
 ----
-  i really like tdi and squid games !!
+  i really like blur and weezer !!
   ----
 he/him
 ----
@@ -9,11 +9,12 @@ umm be my friend (i lack social skills)
 i like bananas and jellyfish .
 ----
 
-![748258eba267680dfc20afa8bfb9d2d7](https://github.com/user-attachments/assets/85757f86-c229-45dc-9292-2d5998f415c0)
+![Screenshot 2025-03-08 162126](https://github.com/user-attachments/assets/390e8274-c9f5-4d4f-94f9-3c36c28414df)
+
 ----
 mmm i love yoai
 ----
-thangyu shipper hehe romantico
+
 
 
 
