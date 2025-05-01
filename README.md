@@ -1,4 +1,4 @@
-i dunno how to make this interesting errmm soo my name is simon
+i dunno how to make this interesting errmm soo my name is ash or ashino
 ----
   i really like blur and weezer !!
   ----
